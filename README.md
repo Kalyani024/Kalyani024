@@ -10,5 +10,5 @@
 🚀 I am keen to advance in biotech and pharmaceutical R&D, focusing on computational and nanotechnology-driven solutions for drug development and cancer research. My goal is to contribute to cutting-edge research in molecular genetics and therapeutic innovation, particularly in projects involving nanomedicine and novel drug delivery systems.
 
 ### Contact
-📫 Feel free to connect with me at [kalyaninamburi143@gmail.com](mailto:kalyaninamburi143@gmail.com).
+📫 Feel free to connect with me at [kalyaninamburi024@gmail.com](mailto:kalyaninamburi024@gmail.com).
 
